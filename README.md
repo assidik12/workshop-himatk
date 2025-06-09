@@ -51,5 +51,3 @@
 ### jika ada pertanyaan bisa japri ke watsapp/instagram ("@as.sidik\_")
 
 # TERIMAKASIH SEMOGA BERMANFAAT :(
-
-# SUKSES SEHAT SELALU ya teman-teman
